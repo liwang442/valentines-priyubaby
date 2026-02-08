@@ -89,7 +89,7 @@
   <div class="heart">❤️</div>
 
   <h1>Our Love Story</h1>
-  <h2>Me & Priyu 💕</h2>
+  <h2>me & youmybaby 💕</h2>
 
   <div class="card">
     <p>
