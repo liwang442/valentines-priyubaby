@@ -93,9 +93,7 @@
 
   <div class="card">
     <p>
-      Every love story is special, but ours is my favorite.
-      It’s filled with laughter, kisses, memories,
-      and a love that keeps growing every day.
+     You’re not just my girlfriend—you’re my partner, my soulmate, my safe place. With you, love feels calm, real, and endlessly beautiful. Thank you for choosing me every day, for understanding me even when I don’t have the right words, and for loving me the way you do. No matter where life takes us, my heart knows one thing for sure: it’s always you and only you, j jasto time ma ho ma jaile timi sangai hunxa even on your worth.
     </p>
   </div>
 
